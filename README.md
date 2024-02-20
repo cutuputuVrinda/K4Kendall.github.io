@@ -23,6 +23,7 @@ Sending virtual hugs your way! 🐾
 
 **I am sorry** for getting carried away; it was unintentional. If I had known you weren't feeling great, I would've gladly cheered you up with a goofy clown dance.
 
+![Image4](https://github.com/cutuputuVrinda/K4Kendall.github.io/raw/main/Images/Image4.jpg)
 
 
 
